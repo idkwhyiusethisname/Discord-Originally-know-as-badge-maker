@@ -5,7 +5,7 @@
   </a>
   </kbd>
   
-  <h2 align="center">Name Said it all</h2>
+  <h2 align="center">Auto make badge for u and ur tokenz</h2>
 
   <p align="center">
     best tool ehehehheh</b>)
